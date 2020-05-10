@@ -15,4 +15,5 @@
 | YouTube | [view](https://youtube.com/channel/UCr2YZDNbP_VzshV-RAhjrLw) |
 | Discord | [view](https://discord.gg/4SmyzJc) |
 | Telegram | [view](https://t.me/WinnersToken) |
+| Bitcointalk | [view](https://bitcointalk.org/index.php?topic=5247487) |
 ![](https://winnerstoken.org/assets/images/banner_vector2.png)
